@@ -1,0 +1,1 @@
+B6715106-ทำ Entity Equipment
